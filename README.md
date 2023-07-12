@@ -28,3 +28,13 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 
 
 2nd Year 1st semester CSNE : https://drive.google.com/drive/folders/1ZRzF-aJEBiVrB3UNhG1obn11EJ3q-vff?usp=sharing
+
+
+<h2>Cyber Security </h2>
+
+
+2nd Year 1st semester CS : https://drive.google.com/drive/folders/1f7ESrXGPH8DDno7IuAXxfIMBLMZc1kVm?usp=sharing
+
+
+
+
