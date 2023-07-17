@@ -39,3 +39,10 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 
 2nd Year 2nd semester CS : https://drive.google.com/drive/folders/1-5gYXLNcJ0N7lZqXZWj1mJlB4dejm3fx?usp=sharing
 
+
+<h2>ISE </h2>
+
+2nd Year 1st & 2nd semesters ISE  : 
+             https://mysliit-my.sharepoint.com/:f:/g/personal/it20120184_my_sliit_lk/EhEydpUcYShPvkmU4kIEnvUBTtROhygfcTwdeUUCx01BlA?e=WQnNX4
+
+
