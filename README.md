@@ -20,6 +20,14 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 2st Year 2nd semester IT : https://drive.google.com/drive/folders/1BcNBRaPW_HIce-W9AqNRTsL9mhJXeLAM?usp=sharing
 
 
+<h2>SE </h2>
+
+SE 3rd year | June - Sep semester : <br/>
+https://drive.google.com/drive/folders/1y1f10rjeTG7uZaMRk7fq6U8zOfGXLPGX?usp=sharing
+
+
+
+
 <h2>CSNE </h2> 
 
 <h4>Get common module documents for CSNE and IT students from IT Semester Drive Links.. </h4>
