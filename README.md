@@ -22,7 +22,7 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 
 <h2>SE </h2>
 
-SE 3rd year | June - Sep semester : <br/>
+SE 3rd year | June - Nov semester : <br/>
 https://drive.google.com/drive/folders/1y1f10rjeTG7uZaMRk7fq6U8zOfGXLPGX?usp=sharing
 
 
